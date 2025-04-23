@@ -20,7 +20,6 @@ With a background in healthcare and e-commerce analytics, I use data to drive sm
 
 ## 📫 Let’s Connect
 - LinkedIn: [linkedin.com/in/theresaadie](https://www.linkedin.com/in/theresaadie/)
-- Portfolio: *Coming soon*
 - Email: *Add yours here if you'd like*
 
 ## ⚡ Fun Fact
